@@ -1,4 +1,4 @@
-# 
+# vip nft wash trading bot | trait-analysis + liquidity-analysis is the best nft wash trading bot, featuring trait-analysis and liquidity-analysis. Fast, smart, and optimized for
 
 
 
